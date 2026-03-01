@@ -1,6 +1,6 @@
 # matoumbaalfred
 # 💫 About Me:
-Etudiant en Génie Informatique<br>
+Etudiant en génie ınformatique.<br>⚡ Passionné des nouvelles technologies
 
 
 ## 🌐 Socials:
